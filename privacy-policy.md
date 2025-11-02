@@ -8,4 +8,4 @@ These ads may use anonymous identifiers to show relevant content.
 We do not collect, store, or share any personal information.  
 
 If you have any questions or concerns, please contact us at:  
-📧 tulipixgames@gmail.com
+📧 hava.dayan01@gmail.com
